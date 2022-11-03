@@ -1,1 +1,1 @@
-Koeien hebben 4 magen
+mensen kunnen geen gras verteren
